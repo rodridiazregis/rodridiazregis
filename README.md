@@ -6,8 +6,6 @@ Take a look at my work.
 
 <img src="https://user-images.githubusercontent.com/85205823/192325244-1e46ba81-e6da-4f26-b3f0-ff3fd068a8eb.gif"/>
 
-<img src="https://im5.ezgif.com/tmp/ezgif-5-b9df64a0d0.gif"/>
-
 CONTACT ME!
 
 <a href="https://www.linkedin.com/in/rodrigo-diaz-regis-89637296/">
